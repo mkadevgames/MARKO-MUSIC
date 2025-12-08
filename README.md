@@ -1,1 +1,1 @@
-# https://www.mediafire.com/file/phqfcyuvdh22yr3/NO_OLHO_DO_FURAC%25C3%2583O_mobile.zip/file
+https://www.mediafire.com/file/vlncbfkf6wi5u3r/NO+OLHO+DO+FURACÃO.zip/file
